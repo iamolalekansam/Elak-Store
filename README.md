@@ -1,1 +1,1 @@
-Elak Baby store E-Cpmmerce # Elak-Store
+Elak Baby store E-Commerce # Elak-Store
